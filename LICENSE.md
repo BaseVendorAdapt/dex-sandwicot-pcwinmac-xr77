@@ -1,4 +1,4 @@
-# 
+# Best dex sandwiched bot scripts for Mac OS | Open Source dex sandwiched bot scripts for PC Windows. Featuring signal generation and router optimization — optimized for maximum performance on every platform.
 
 
 
